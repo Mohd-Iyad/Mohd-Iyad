@@ -65,4 +65,4 @@ HTML · CSS · JavaScript · UI/UX · Figma · Graphic Design
 
 ## Connect
 
-[LinkedIn](YOUR_LINKEDIN_URL)
+[LinkedIn](https://www.linkedin.com/in/mohammed-iyad))
